@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Hamletnt
 - 👀 I’m interested in engineer-computer
-- 🌱 I’m currently learning high school
+- 🌱 I’m currently learning in KMITL
 - 📫 How to reach me ig: satang_nt_
 
 <!---
